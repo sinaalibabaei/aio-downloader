@@ -7,6 +7,94 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 01:34
+---
+
+## VahidOOnLine — post 239804
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239804_1778623466.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شروین تبریزی، سخنگوی اورژانس تهران اعلام کرد طوفان در تهران تاکنون چهار مصدوم داشته است که البته همه این مصدومان در محل درمان شدند.
+او خاطرنشان کرد با توجه به اینکه وزش باد دقایقی پیش متوقف شد، احتمال افزایش مصدومان وجود دارد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## kianmeli1 — post 87374
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87374_1778623467.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت خیابان‌ها و پارک‌های پردیس پس از زلزله امشب
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87373
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87373_1778623469.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حضور مردم در حاشیه شهر بومهن پس از وقوع زلزله امشب
+
+برخی مردم در خیابان خوابیده اند
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 336892
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336892_1778623472.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا به خواندن اسامی جاویدنام‌ها ادامه خواهم داد؟ چرا تکرار نام جاویدنام‌ها اهمیت ملی دارد؟ و چرا جمهوری اسلامی از تکرار نام جاویدنام خشمگین و عصبانی است؟
+
+@iranintltv
+</div>
+
+## ManotoTV — post 105380
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105380_1778623474.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از تهران:
+«می‌گفت جنگ شد و بعد رها شد… همه‌چیز روی هوا موند و شرایط افتضاح‌تر شد.
+می‌گفت قبلش حداقل یه جور داشتیم زندگی می‌کردیم
+</div>
+
+## manototv — post 105380
+
+<div align="center">
+  <a href="telegram/content/manototv_105380_1778623476.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از تهران:
+«می‌گفت جنگ شد و بعد رها شد… همه‌چیز روی هوا موند و شرایط افتضاح‌تر شد.
+می‌گفت قبلش حداقل یه جور داشتیم زندگی می‌کردیم
+</div>
+
+## alonews — post 119630
+
+<div align="center">
+  <a href="telegram/content/alonews_119630_1778623480.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حضور مردم در حاشیه شهر بومهن پس از وقوع زلزله امشب
+
+
+🔴برخی مردم در خیابان خوابیده اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 01:23
 ---
 
