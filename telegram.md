@@ -7,6 +7,211 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 02:25
+---
+
+## VahidOOnLine — post 239811
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239811_1778626556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صفحه جمهوری‌خواهان سنا در ایکس نوشت: «تا زمانی که جمهوری اسلامی از جاه‌طلبی‌های هسته‌ای خود دست نکشد، ترامپ از قدرت آمریکا برای قطع منابع مالی ماشین ترور استفاده می‌کند.»
+این پست با اشاره به پیامدهای برجام نوشت: «در حالی که جمهوری اسلامی در حال ساخت موشک‌ برای تهدید متحدان آمریکا بود، دموکرات‌ها پالت‌های پول نقد به ایران فرستادند.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239810
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239810_1778626557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شبکه ان‌بی‌سی نیوز روز سه‌شنبه گزارش داد که پنتاگون در حال بررسی تغییر نام جنگ علیه رژیم ایران از «عملیات خشم حماسی» به «عملیات پتک» است؛ اقدامی که در صورت تصمیم دونالد ترامپ برای ازسرگیری کارزار گسترده بمباران انجام خواهد شد.
+منابع آگاه همچنین به ان‌بی‌سی گفتند که ایالات متحده اکنون نسبت به پیش از آغاز جنگ، قدرت آتش بیشتری در منطقه دارد. یکی از مقام‌های آمریکایی گفت: «ما اکنون نسبت به ۲۷ فوریه در موقعیت بهتری هستیم. قدرت آتش و توانایی بیشتری داریم.»
+این تغییر نام احتمالی بخشی از تلاش دولت ترامپ برای دور زدن «قانون اختیارات جنگی» مصوب ۱۹۷۳ است.
+این قانون جایگزین قانون اساسی نیست و مهلتی ۶۰ روزه تعیین کرده است که بر اساس آن رئیس‌جمهور باید هرگونه اقدام نظامی بدون مجوز را متوقف کند یا از کنگره مجوز بگیرد.
+مهلت ۶۰ روزه مربوط به جنگ ایران در اول مه به پایان رسید و دولت ترامپ  می‌گوید که آتش‌بس، این شمارش زمانی را متوقف کرده است. با این حال، آمریکا همچنان محاصره را اجرا می‌کند
+مارکو روبیو، وزیر خارجه آمریکا،اقدامات نظامی جاری آمریکا در منطقه را «عملیات دفاعی» توصیف می‌کند.
+یکی از مقام‌های کاخ سفید به ان‌بی‌سی گفت دولت معتقد است دادن نام جدید به عملیات نظامی، عملا شمارش زمانی قانون اختیارات جنگی را از نو آغاز می‌کند و «عملیات پتک» تنها نامی نیست که در دست بررسی قرار دارد.
+گزارش ان‌بی‌سی در حالی منتشر می‌شود که به عقیده برخی تحلیلگران ازسرگیری کارزار گسترده بمباران علیه رژیم ایران محتمل به نظر می‌رسد؛ چرا که دونالد ترامپ پاسخ اخیر مقامات حاکم بر ایران در مذاکرات غیرمستقیم با میانجیگری پاکستان را «کاملا غیرقابل قبول» خوانده و تهران نیز اعلام کرده است که از خواسته‌های اصلی خود عقب‌نشینی نخواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239809
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239809_1778626558.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شروین تبریزی، سخنگوی اورژانس تهران سه‌شنبه‌شب، ۲۲ اردیبهشت گفت: «طوفان در تهران تاکنون چهار مجروح داشته که البته همه این افراد در محل درمان شدند.» او گفت: «با توجه به اینکه وزش باد دقایقی قبل متوقف شد احتمال افزایش مجروحان وجود دارد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341619
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341619_1778626558.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A dog named Bhalu hits the whitewater rapids of northern Iceland, and heeds orders to go forward after the raft makes a big splash.
+
+“Bhalu is more than just our rafting dog, he’s a true whitewater veteran and beloved member of the Viking Rafting crew," the rafting company says.
+</div>
+
+## IranIntlTV — post 336898
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336898_1778626561.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در نشست امنیتی پولیتیکو گفت حملات اخیر به ایران، نه علیه مردم، بلکه علیه جمهوری اسلامی بوده و آن را عملیاتی آزادی‌بخش توصیف کرد.
+
+گفت‌وگو با نجات بهرامی، تحلیل‌گر سیاسی
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336897
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336897_1778626563.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صفحه جمهوری‌خواهان سنا در ایکس نوشت: «تا زمانی که جمهوری اسلامی از جاه‌طلبی‌های هسته‌ای خود دست نکشد، ترامپ از قدرت آمریکا برای قطع منابع مالی ماشین ترور استفاده می‌کند.»
+این پست با اشاره به پیامدهای برجام نوشت: «در حالی که جمهوری اسلامی در حال ساخت موشک‌ برای تهدید متحدان آمریکا بود، دموکرات‌ها پالت‌های پول نقد به ایران فرستادند.»
+
+https://iranintl.com/202605122338
+</div>
+
+## IranIntlTV — post 336896
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336896_1778626564.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت حملات آمریکا توانایی‌ و رهبری نظامی جمهوری اسلامی را به شدت تضعیف کرده و آمریکا انتظار دارد فشار بر جمهوری اسلامی با محاصره بنادر ایران، منجر به فروپاشی اقتصادی حکومت شود.
+
+گفت‌وگو با محمد قائدی، مدرس روابط بین‌الملل در دانشگاه جورج واشینگتن
+
+@iranintltv
+</div>
+
+## FarsiVOA — post 217581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ: در چین گفتگوهای مفصلی در مورد اقدام نظامی علیه جمهوری اسلامی خواهیم داشت
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇰🇷 یو نی‌هاپ: وزیر دفاع کره جنوبی، آن گیوبک، می‌گوید سئول پس از گفتگو با مقامات آمریکایی در واشنگتن، مشارکت مرحله‌ای در تأمین امنیت ترافیک دریایی در تنگه هرمز را مد نظر قرار خواهد داد، از جمله احتمال به اشتراک‌گذاری اطلاعات و حمایت نظامی محدود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 389356
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389356_1778626567.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389355
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389355_1778626567.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A22
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389354
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389354_1778626568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏۲۵۰۰ سال تاریخ داریم، دریغ از یه مثقال آینده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389352
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389352_1778626569.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یادآوری آن روز باشکوه.
+
+*تصویر حمله هوایی به بیت رهبری
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389350
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389350_1778626569.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وسط این بگاییا یه پسره به اسم امیر قاسم ملقب به بتمن :))))))) با این ویس هاپ هاپ مخ ۶۰ نفر زده، الان لو رفته دخترا به جون هم افتادن چت و اسکرین شات و نود همدیگه‌رو دارن پخش میکنن
+
+با نود و چتاشون کاری ندارم ولی این ویس خیلی خنده بود
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 02:13
 ---
 
