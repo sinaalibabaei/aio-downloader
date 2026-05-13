@@ -7,6 +7,32 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 04:04
+---
+
+## pm_afshaa — post 90666
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90666_1778632453.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ نقشه کشور ونزوئلا رو با طرح پرچم آمریکا و تیتر «پنجاه‌و‌یکمین ایالت» پست کرد :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 217587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تحقیقات تازه نشان می‌دهد جمهوری اسلامی و نیروهای وابسته به آن با استفاده از شبکه‌های اجتماعی، گروه‌های تبهکار، و نیروهای مزدور، دامنه عملیات جاسوسی و خرابکاری خود را در اروپا گسترش داده‌اند. شبکه‌ای پنهان که از تلگرام آغاز می‌شود و به خیابان‌های لندن و بروکسل می‌رسد.
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 03:54
 ---
 
