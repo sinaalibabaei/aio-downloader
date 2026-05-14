@@ -7,6 +7,720 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 06:02
+---
+
+## VahidOOnLine — post 240021
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، پنجشنبه ۲۵ اردیبهشت در تالار بزرگ خلق در پکن، در مراسمی رسمی مورد استقبال شی جین‌پینگ، رئیس‌جمهوری چین، قرار گرفت.
+رسانه‌های دولتی چین اعلام کردند دیدار رهبران دو کشور در پکن آغاز شده است. انتظار می‌رود دو طرف درباره روابط دوجانبه، تحولات خاورمیانه، جنگ و مسائل اقتصادی گفتگو کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240020
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240020_1778725947.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، سفیر آمریکا در سازمان ملل، با اشاره به حمایت ۱۱۳ کشور از پیش‌نویس قطعنامه شورای امنیت در محکومیت اقدامات جمهوری اسلامی، گفت تهران به دلیل اقدامات غیرقانونی خود، از جمله مین‌گذاری و اعمال عوارض بر کشتیرانی در تنگه هرمز، «منزوی» شده است.
+والتز در ایکس نوشت کشورهایی از جمله هند، ژاپن و کره جنوبی از این ابتکار حمایت کرده‌اند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240019
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240019_1778725948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، سفیر آمریکا در سازمان ملل، با اشاره به حمایت ۱۱۳ کشور از پیش‌نویس قطعنامه شورای امنیت در محکومیت اقدامات جمهوری اسلامی، گفت تهران به دلیل اقدامات غیرقانونی خود، از جمله مین‌گذاری و اعمال عوارض بر کشتیرانی در تنگه هرمز، «منزوی» شده است.
+والتز در ایکس نوشت کشورهایی از جمله هند، ژاپن و کره جنوبی از این ابتکار حمایت کرده‌اند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240018
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240018_1778725948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شی جین‌پینگ، رئیس‌جمهوری چین، بامداد پنجشنبه ۲۵ اردیبهشت در مراسمی رسمی در تالار بزرگ خلق در پکن از دونالد ترامپ، رئیس‌جمهوری آمریکا، استقبال کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240017
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240017_1778725948.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با ادامه محاصره بنادر ایران از سوی آمریکا، خبرگزاری بلومبرگ با استناد به تصاویر ماهواره‌ای گزارش داد مخازن نفت در جزیره خارگ به حداکثر ظرفیت ذخیره‌سازی نزدیک شده است.
+
+بر اساس این تصاویر، طی روزهای ۱۸، ۱۹ و ۲۱ اردیبهشت‌ماه هیچ نفتکش فعالی در نزدیکی جزیره خارگ برای صادرات نفت شناسایی نشده و تمام اسکله‌های این جزیره خالی از کشتی بوده است.
+ایران پیش از این برای دور زدن محدودیت‌های ایجادشده از سوی نیروی دریایی آمریکا، بارگیری نفتکش‌ها در خارگ را ادامه داده و از آنها به‌عنوان مخازن شناور استفاده می‌کرد.
+
+تصاویر ماهواره‌ای همچنین نشان می‌دهد سطح نفت در مخازن ذخیره‌سازی جزیره به‌شدت افزایش یافته و ظرفیت باقی‌مانده ذخیره‌سازی تقریبا به صفر نزدیک شده است. به گزارش بلومبرگ، در صورت پر شدن کامل مخازن، ایران ممکن است ناچار شود تولید نفت در برخی میدان‌ها را کاهش دهد.
+
+همزمان شمار نفتکش‌های مستقر در شرق جزیره خارگ نیز افزایش یافته و تعداد آنها از سه نفتکش در شنبه ۲۲ فروردین‌ماه، به دست‌کم ۱۸ نفتکش با اندازه‌های مختلف تا دوشنبه ۲۱ اردیبهشت‌ماه رسیده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240016
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240016_1778725949.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش وال‌استریت ژورنال، پنتاگون به‌طور ناگهانی اعزام یک تیپ زرهی ارتش آمریکا به لهستان را لغو کرد؛ تصمیمی که بخشی از برنامه دولت دونالد ترامپ برای کاهش حضور نظامی آمریکا در اروپا توصیف شده است. این اقدام در حالی انجام شد که بخشی از تجهیزات و نیروهای این تیپ زرهی موسوم به «بلک جک» پیش‌تر در مسیر استقرار قرار داشتند.
+بر اساس این گزارش، وزارت دفاع آمریکا پیش‌تر نیز از کاهش ۵ هزار نیروی آمریکایی در آلمان خبر داده بود؛ تصمیمی که پس از انتقادهای تند فریدریش مرتس، صدراعظم آلمان، از کاخ سفید علنی شد.
+وال‌استریت ژورنال نوشت برخی فرماندهان ارتش آمریکا انتظار داشتند روند کاهش نیروها به‌صورت تدریجی و برنامه‌ریزی‌شده انجام شود، اما پیت هگست، وزیر دفاع آمریکا، روند این کاهش را تسریع کرده و تصمیم به توقف اعزام تیپ زرهی را در میانه مسیر گرفته است؛ اقدامی که شماری از مقام‌های نظامی را غافلگیر کرد.
+این گزارش می‌افزاید دولت ترامپ قصد دارد سطح نیروهای آمریکایی در اروپا را به میزان پیش از حمله روسیه به اوکراین در سال ۲۰۲۲ بازگرداند. همزمان، پنتاگون تاکید کرده کشورهای اروپایی باید مسئولیت بیشتری در دفاع متعارف از قاره اروپا برعهده بگیرند و آمریکا تمرکز خود را بر دفاع داخلی و منطقه هند و اقیانوس آرام معطوف خواهد کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240015
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240015_1778725949.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️رسانه‌های جمهوری اسلامی از برگزاری رزمایش پنج‌روزه سپاه تهران بزرگ با محوریت مقابله با عملیات هلی‌برن نیروهای متخاصم خبر دادند.
+
+در تصاویری که خبرگزاری‌های فارس و تسنیم، نزدیک به سپاه پاسداران، از این رزمایش منتشر کردند، گروهی از نیروهای پیاده، موتورسوار و وانت‌سوار با سلاح‌های سبک، نیمه‌سنگین و پهپاد به اهداف فرضی تعیین‌شده، از جمله تصویر پارچه‌ای یک هلی‌کوپتر، شلیک می‌کنند.
+این رزمایش پس از آن برگزار می‌شود که پیشتر در فروردین ۱۴۰۵ و در جریان عملیات جستجو و نجات خلبان دوم جنگنده اف-۱۵ آمریکا که در مناطق کوهستانی جنوب غربی ایران سرنگون شده بود، تصاویری از ورود هلی‌کوپترهای بلک‌هاوک و هواپیمای تانکر سوخت‌رسان به خاک ایران و شلیک ماموران پلیس و شماری از مردم محلی به آنها منتشر شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240014
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240014_1778725949.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت خارجه آمریکا روز سه‌شنبه به رویترز گفت مقام‌های ارشد آمریکا و چین توافق دارند که هیچ کشوری نباید اجازه داشته باشد برای عبور کشتی‌ها از تنگه هرمز عوارض دریافت کند؛ نشانه‌ای از این‌که دو کشور در تلاش‌اند برای فشار بر رژیم ایران به‌منظور کنار گذاشتن کنترل این آبراه حیاتی، موضع مشترکی پیدا کنند.
+بیانیه وزارت خارجه آمریکا پیش از نشست حساس دونالد ترامپ، رئیس‌جمهوری آمریکا، و شی جین‌پینگ، رئیس‌جمهوری چین، منتشر شد؛ نشستی که موضوع کنترل ایران بر تنگه هرمز نیز در دستور کار آن است.
+وزارت خارجه آمریکا اعلام کرد وانگ یی، وزیر خارجه چین، و مارکو روبیو، وزیر خارجه آمریکا، در تماس تلفنی ماه آوریل درباره این موضوع گفت‌وگو کرده‌اند.
+تامی پیگوت، سخنگوی وزارت خارجه آمریکا، در پاسخ به پرسش‌های رویترز درباره این تماس گفت: «آن‌ها توافق کردند که هیچ کشور یا سازمانی نباید اجازه داشته باشد برای عبور از آبراه‌های بین‌المللی مانند تنگه هرمز عوارض دریافت کند.» رویترز می نویسد،وزارت خارجه آمریکا پیش‌تر برخلاف رویه معمول خود، گزارشی از این تماس منتشر نکرده بود.
+به گزارش رویترز،سفارت چین روایت آمریکا از این گفت‌وگو را رد نکرد و گفت امیدوار است همه طرف‌ها برای ازسرگیری عبور و مرور عادی از تنگه همکاری کنند؛ گذرگاهی که پیش از جنگ، یک‌پنجم نفت و گاز جهان از آن عبور می‌کرد.
+لیو پنگیو، سخنگوی سفارت چین، به رویترز گفت: «حفظ امنیت و ثبات منطقه و تضمین عبور بدون مانع، در راستای منافع مشترک جامعه بین‌المللی است.»
+کرد.دو منبع آگاه از گفت‌وگوی وانگ و روبیو گفتند روبیو احتمال پرداخت عوارض از سوی کشتی‌های چینی را مطرح کرده بود؛ اقدامی که به گفته آن‌ها ظاهرا با هدف ترغیب پکن به اعمال فشار بیشتر بر تهران برای پایان دادن به درگیری انجام شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240013
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240013_1778725950.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️معین، خواننده سرشناس ایرانی، با انتشار پیامی در صفحه رسمی اینستاگرام خود، اخبار مربوط به همکاری با تیم ملی را تکذیب کرد.
+او در این پیام نوشت: «در این روزها متأسفانه شایعات زیادی درباره من و همکارانم در فضای مجازی منتشر می‌شود که هیچ ارتباطی با واقعیت ندارند. اخیراً نیز خبرهایی درباره اجرای من برای تیم ملی فوتبال در جام جهانی منتشر شده که صحت ندارد.»
+این هنرمند در پایان با تأکید بر لزوم آرامش جامعه خاطرنشان کرد: «عشق من به مردم و سرزمینم همیشه واقعی بوده، اما صدای من زمانی معنا دارد که دل مردم آرام باشد و حال ایران خوب. به امید روزهای روشن‌تر برای همه مردم سرزمینم.»
+پیش از این، مهدی تاج، رئیس فدراسیون فوتبال، در حاشیه مراسم رونمایی از پیراهن تیم ملی برای جام جهانی ۲۰۲۶ گفته بود این فدراسیون در جریان ترانه‌ای قرار دارد که معین برای تیم ملی ایران خواهد خواند. او گفته بود: «هر کسی برای ایران بخواند، روی چشم ما جا دارد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240012
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240012_1778725950.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری مهر چهارشنبه‌شب ۲۳ اردیبهشت‌ماه، پرچم حزب‌الله را در ویدیوی مربوط به بدرقه اعضای تیم ملی فوتبال ایران سانسور کرد.
+
+اعضای تیم ملی فوتبال ایران در میدان انقلاب تهران برای حضور در جام جهانی ۲۰۲۶ بدرقه شدند؛ رقابت‌هایی که خرداد و تیر ۱۴۰۵ به میزبانی مشترک آمریکا، مکزیک و کانادا برگزار خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240011
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240011_1778725951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمایندگی جمهوری اسلامی در سازمان ملل در بیانیه‌ای گفت حمایت بسیاری از کشورها از پیش‌نویس قطعنامه مورد حمایت واشینگتن علیه جمهوری اسلامی تحت «فشار سیاسی، اجبار و حتی تهدید» بوده است و این قطعنامه را «پوشش سیاسی برای اقدامات غیرقانونی» دانست.
+این بیانیه افزود: «هیچ میزان از همراهی‌های مشترک تحمیلی، از جمله محاصره دریایی، حمله به کشتی‌های تجاری ایران و توقیف غیرقانونی آنها، و گروگان‌گیری خدمه این کشتی‌ها به شیوه‌ای شبیه به دزدی دریایی، نمی‌تواند اقدامات مداوم و ناقض حقوق بین‌الملل واشینگتن علیه جمهوری اسلامی را مشروعیت ببخشد.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240010
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240010_1778725951.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در رسانه‌های حکومتی نشان می‌دهد ماموران جمهوری اسلامی، شامگاه چهارشنبه ۲۳ اردیبهشت، پهپاد شاهد ۱۳۶ را در دو مدل رنگی صورتی و آبی به شهر پیشوا برده‌اند تا مردم برای دیدن پهپادهای رنگی جمع شوند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240009
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240009_1778725953.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پایگاه خبری «فرارو» چهارشنبه ۲۴ اردیبهشت‌ماه گزارش داد قیمت برخی مدل‌های تلفن همراه در بازار ایران به بیش از دو برابر نرخ جهانی رسیده و هم‌زمان توقف ورود گوشی به کشور از ابتدای سال، باعث جهش تازه قیمت‌ها شده است.
+
+براساس این گزارش، گلکسی اس۲۵ اولترا نسخه ۲۵۶ گیگابایت با رم ۱۲ گیگ در بازار جهانی هزار و ۲۹۹ دلار قیمت دارد، اما همین مدل در بازار ایران تا ۴۸۷ میلیون تومان، معادل حدود دو هزار و ۷۰۰ دلار، فروخته می‌شود.
+
+فرارو همچنین نوشت آیفون ۱۷ پرو مکس نسخه ۵۱۲ گیگ با قیمت جهانی هزار و ۳۹۹ دلار، در بازار موبایل ایران حدود ۵۱۴ میلیون تومان، معادل نزدیک دو هزار و ۸۵۰ دلار، قیمت‌گذاری شده است. آیفون ۱۷ نسخه معمولی نیز که حدود ۸۰۰ دلار ارزش دارد، در ایران تا حدود هزار و ۸۰۰ دلار فروخته می‌شود.
+
+فعالان بازار موبایل به فرارو گفته‌اند روند ورود گوشی به کشور از ابتدای سال متوقف شده و کاهش عرضه، عامل اصلی افزایش قیمت‌ها بوده است. براساس این گزارش، گلکسی ای۰۷ که پیش از نوروز بین ۱۳ تا ۱۴ میلیون تومان فروخته می‌شد، اکنون به حدود ۲۲ میلیون تومان رسیده است. همچنین قیمت گلکسی ای۳۶ بین ۶۸ تا ۷۲ میلیون تومان و گلکسی ای۵۶ بین ۸۵ تا ۹۸ میلیون تومان اعلام شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240000
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این‌ها فقط چند روایت کوتاه از دی‌ماه‌اند؛
+از روزهایی که خیابان‌های ایران، شاهد خاموش شدن زندگی جوان‌هایی شد که هر کدام در حال ساختن آینده خود بودند.<
+یکی ورزشکار بود،
+یکی تازه زندگی مشترکش را شروع کرده بود،
+یکی کار می‌کرد تا روی پای خودش بایستد،
+و یکی پدر کودکی بود که حالا باید بدون او بزرگ شود.<
+مهدی جعفری، سروش (حسین) دانشمندی، جواد زارعی، حامد بیابانی، حسین رضایی، امیرحسین میرزایی، محمدمهدی سیف‌الله‌پور و فاطمه اعزازی کله‌سر
+جاویدنامان انقلاب ملی ایرانیان؛
+نام‌هایی که در حافظه این سرزمین مانده‌اند، چون زندگی‌شان پیش از آن‌که فرصت کامل شدن پیدا کند، با گلوله متوقف شد.<
+#جاویدنامان_انقلاب_ملی_ایرانیان
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341694
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341694_1778725953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump watches a ceremony with Chinese President Xi Jinping after arriving at the Great Hall of People in Beijing.
+</div>
+
+## FoxNewsTwitter — post 341693
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341693_1778725955.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump receives a warm welcome at the Great Hall of People in Beijing for his meeting with President Xi Jinping.
+</div>
+
+## FoxNewsTwitter — post 341692
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341692_1778725957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Chinese President Xi Jinping shakes hands with Secretary Rubio, Secretary Bessent and more in China as he walks with President Trump.
+</div>
+
+## FoxNewsTwitter — post 341691
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341691_1778725959.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump meets Chinese President Xi Jinping at the Great Hall of People in Beijing.
+</div>
+
+## FoxNewsTwitter — post 341690
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341690_1778725960.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Chinese President Xi Jinping walks out for his meeting with President Trump.
+</div>
+
+## FoxNewsTwitter — post 341689
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341689_1778725962.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"There is no economy in Cuba."
+
+Secretary Rubio says he doesn't believe the economic trajectory of Cuba can change under the current government.
+</div>
+
+## FoxNewsTwitter — post 341688
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341688_1778725964.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Secretary Rubio says stepping behind the White House press secretary podium wasn't "too bad," but he's not sure if he'd have fun if he had to do it every week.
+
+"Karoline is irreplaceable....We can't wait until Karoline gets back." |@seanhannity
+</div>
+
+## FoxNewsTwitter — post 341687
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341687_1778725965.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: President Trump and President Xi Jinping meet for bilateral talks https://twitter.com/i/broadcasts/1nJOLEBAamlxR
+</div>
+
+## FoxNewsTwitter — post 341686
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341686_1778725966.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+.@seanhannity: "What is your read on President Xi?"
+
+SECRETARY RUBIO: "China has a plan...they believe they will be the world's most powerful country."
+
+"We're not trying to constrain China, but their rise cannot come at our expense."
+</div>
+
+## FoxNewsTwitter — post 341685
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341685_1778725967.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+SENATOR MURRAY: "Do you seriously believe there's abortion in the water, like some of the far-right activists are suggesting?"
+
+EPA ADMIN ZELDIN: "You just said abortion in the water?"
+
+MURRAY: "That's what some far-right activists are saying. That they have an audience, in the EPA, on that absurd issue."
+
+ZELDIN: "I have not had a conversation with anyone at the agency as far as abortions in water."
+
+"I don't even know what you're talking about."
+</div>
+
+## FoxNewsTwitter — post 341684
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341684_1778725969.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: 38th annual candlelight vigil for fallen officers in Washington, DC https://twitter.com/i/broadcasts/1NGaraWVDYVJj
+</div>
+
+## DEJradio — post 4622
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4622_1778725969.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 خبر ۲۱
+چهارشنبه ۲۳ اردیبهشت ۱۴۰۵
+
+#خبر۲۱
+@DEJradio
+</div>
+
+## mamlekate — post 103524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 جی‌دی‌ ونس در مورد در مذاکرات با جمهوری اسلامی: فکر می‌کنم پیشرفت‌هایی حاصل شده است
+
+جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز چهارشنبه در گفت‌وگو با خبرنگاران گفت که در مذاکرات با جمهوری اسلامی پیشرفت‌هایی حاصل شده است.
+
+@mamlekate
+</div>
+
+## mamlekate — post 103523
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 دولت اسرائیل: نتانیاهو در جریان عملیات «غرش شیران» در سفری محرمانه با رئیس امارات دیدار کرد
+
+دفتر نخست‌وزیر اسرائیل روز چهارشنبه ۲۳ اردیبهشت با انتشار پیامی در ایکس اعلام کرد: «بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در بحبوحه عملیات شیر غران، مخفیانه از امارات متحده عربی بازدید کرد و در آن‌جا با شیخ محمد بن زاید، رئیس امارات، دیدار کرد.»
+
+
+📝 امارات «گزارش‌ها درباره سفر نخست‌وزیر اسرائیل» را تکذیب کرد
+
+وزارت امور خارجه امارات در بیانیه‌ای «گزارش‌های منتشرشده درباره سفر ادعایی بنیامین نتانیاهو، نخست‌وزیر اسرائیل، به امارات یا پذیرش هرگونه هیئت نظامی اسرائیلی در این کشور را» تکذیب کرد.
+
+
+📝 نماینده آمریکا استقرار «گنبد آهنین» در امارات را تأیید کرد
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 337095
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337095_1778725971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، به فاکس‌نیوز گفت تهدید جمهوری اسلامی قابل مصالحه نیست، زیرا حکومت روحانیون در پی دستیابی به سلاح هسته‌ای است. روبیو تاکید کرد جهان به رهبری ترامپ اجازه نخواهد داد جمهوری اسلامی به چنین سلاحی دست پیدا کند.
+او افزود تهران قصد داشت با انباشت گسترده پهپاد و موشک، نوعی «مصونیت» برای خود ایجاد کند تا هیچ کشوری نتواند به آن حمله کند و سپس به سمت ساخت سلاح هسته‌ای حرکت کند.
+روبیو تاکید کرد رئیس‌جمهور ترامپ اجازه نخواهد داد چنین سناریویی محقق شود.
+
+https://iranintl.com/202605146709
+</div>
+
+## IranIntlTV — post 337094
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337094_1778725972.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، سفیر آمریکا در سازمان ملل، با اشاره به حمایت ۱۱۳ کشور از پیش‌نویس قطعنامه شورای امنیت در محکومیت اقدامات جمهوری اسلامی، گفت تهران به دلیل اقدامات غیرقانونی خود، از جمله مین‌گذاری و اعمال عوارض بر کشتیرانی در تنگه هرمز، «منزوی» شده است.
+والتز در ایکس نوشت کشورهایی از جمله هند، ژاپن و کره جنوبی از این ابتکار حمایت کرده‌اند.
+
+https://iranintl.com/202605145787
+</div>
+
+## IranIntlTV — post 337093
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337093_1778725972.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، سفیر آمریکا در سازمان ملل، با اشاره به حمایت ۱۱۳ کشور از پیش‌نویس قطعنامه شورای امنیت در محکومیت اقدامات جمهوری اسلامی، گفت تهران به دلیل اقدامات غیرقانونی خود، از جمله مین‌گذاری و اعمال عوارض بر کشتیرانی در تنگه هرمز، «منزوی» شده است.
+والتز در ایکس نوشت کشورهایی از جمله هند، ژاپن و کره جنوبی از این ابتکار حمایت کرده‌اند.
+
+https://iranintl.com/202605145787
+</div>
+
+## IranIntlTV — post 337092
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337092_1778725973.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمایندگی جمهوری اسلامی در سازمان ملل در بیانیه‌ای گفت حمایت بسیاری از کشورها از پیش‌نویس قطعنامه مورد حمایت واشینگتن علیه جمهوری اسلامی تحت «فشار سیاسی، اجبار و حتی تهدید» بوده است و این قطعنامه را «پوشش سیاسی برای اقدامات غیرقانونی» دانست.
+این بیانیه افزود: «هیچ میزان از همراهی‌های مشترک تحمیلی، از جمله محاصره دریایی، حمله به کشتی‌های تجاری ایران و توقیف غیرقانونی آنها، و گروگان‌گیری خدمه این کشتی‌ها به شیوه‌ای شبیه به دزدی دریایی، نمی‌تواند اقدامات مداوم و ناقض حقوق بین‌الملل واشینگتن علیه جمهوری اسلامی را مشروعیت ببخشد.»
+
+https://iranintl.com/202605145471
+</div>
+
+## IranIntlTV — post 337091
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337091_1778725973.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در رسانه‌های حکومتی نشان می‌دهد ماموران جمهوری اسلامی، شامگاه چهارشنبه ۲۳ اردیبهشت، پهپاد شاهد ۱۳۶ را در دو مدل رنگی صورتی و آبی به شهر پیشوا برده‌اند تا مردم برای دیدن پهپادهای رنگی جمع شوند.
+</div>
+
+## IranIntlTV — post 337082
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این‌ها فقط چند روایت کوتاه از دی‌ماه‌اند؛
+از روزهایی که خیابان‌های ایران، شاهد خاموش شدن زندگی جوان‌هایی شد که هر کدام در حال ساختن آینده خود بودند.
+یکی ورزشکار بود،
+یکی تازه زندگی مشترکش را شروع کرده بود،
+یکی کار می‌کرد تا روی پای خودش بایستد،
+و یکی پدر کودکی بود که حالا باید بدون او بزرگ شود.
+مهدی جعفری، سروش (حسین) دانشمندی، جواد زارعی، حامد بیابانی، حسین رضایی، امیرحسین میرزایی، محمدمهدی سیف‌الله‌پور و فاطمه اعزازی کله‌سر
+جاویدنامان انقلاب ملی ایرانیان؛
+نام‌هایی که در حافظه این سرزمین مانده‌اند، چون زندگی‌شان پیش از آن‌که فرصت کامل شدن پیدا کند، با گلوله متوقف شد.
+#جاویدنامان_انقلاب_ملی_ایرانیان
+</div>
+
+## FarsiVOA — post 217687
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217687_1778725974.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ادامه خاموشی اینترنت و اعدام‌ها درایران؛ واکنش کاربران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217686
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مراسم استقبال رسمی از دونالد ترامپ رئیس جمهوری آمریکا، در چین
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217685
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217685_1778725975.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا روز پنج‌شنبه به وقت پکن مورد استقبال رسمی شی جین‌پینگ، رئیس جمهوری چین قرار گرفت. آقای ترامپ در راس یک هئیت عالی‌رتبه سیاسی و اقتصادی وارد چین شده است. انتظار می‌رود که مسئله تنگه هرمز یکی از مسائل مورد گفت‌وگو در این سفر باشد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217684
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تحریم‌های مرتبط با جمهوری اسلامی علیه نهادهای چینی چه اثری دارد؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217683
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نویسندگان زندانی، تصویر ترسناک جهان امروز
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217682
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217682_1778725975.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ايران، كشورى كه آفلاين است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217681
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نشست «عراق در خاورمیانه جدید» در اندیشکده آتلانتیک
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی دی ونس، معاون رئیس جمهوری آمریکا: در مذاکرات با جمهوری اسلامی پیشرفت‌هایی حاصل شده است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شروط آمریکا برای عادی‌سازی روابط با طالبان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تازه‌ترین مواضع قانون‌گذاران آمریکایی در کنگره
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️آنچه دولت علی الزیدی برای عراق به ارمغان نمی‌آورد؟
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 روبیو: امیدواریم چین ایران را به عقب‌نشینی از رفتارهایش متقاعد کند
+
+💢مارکو روبیو، وزیر خارجه آمریکا، اعلام کرد واشینگتن امیدوار است چین نقش فعال‌تری برای متقاعد کردن ایران به عقب‌نشینی از رفتارهایش در منطقه ایفا کند.
+
+▪️روبیو همچنین گفت:
+
+▪️ آمریکا به‌دنبال مدیریت راهبردی روابط پیچیده خود با چین است
+▪️ چین بزرگ‌ترین چالش ژئوپلیتیکی و سیاسی پیش‌روی آمریکا محسوب می‌شود
+▪️ واشینگتن خواهان جلوگیری از تشدید تنش‌ها در منطقه است
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 واشینگتن‌پست: چین از جنگ ایران سود راهبردی می‌برد
+
+💢روزنامه «واشینگتن‌پست» به‌نقل از یک گزارش محرمانه اطلاعاتی آمریکا مدعی شد چین در حال کسب مزایای راهبردی از جنگ ایران است؛ در حالی که آمریکا منابع نظامی و اقتصادی خود را در این درگیری مصرف می‌کند.
+
+▪️بر اساس این ارزیابی:
+
+▪️ چین در جریان حملات ایران، به کشورهای خلیج فارس تسلیحات فروخته است
+▪️ پکن به برخی کشورها برای مدیریت بحران انرژی پس از بسته‌شدن تنگه هرمز کمک کرده است
+▪️ جنگ باعث کاهش ذخایر موشکی و سامانه‌های دفاعی آمریکا شده و نگرانی‌هایی درباره آمادگی واشینگتن برای درگیری احتمالی بر سر تایوان ایجاد کرده است
+▪️ چین عملیات‌های نظامی آمریکا را زیر نظر دارد و از پیام‌های ضدجنگ برای نمایش آمریکا به‌عنوان عامل بی‌ثباتی استفاده می‌کند
+
+💢تحلیلگران معتقدند ادامه این درگیری می‌تواند نفوذ جهانی چین را افزایش داده و جایگاه آمریکا نزد متحدانش را تضعیف کند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14083
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14083_1778725976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: آمریکا برای پایان جنگ با ایران به کمک چین نیاز ندارد
+
+💢دونالد ترامپ اعلام کرد آمریکا برای پایان دادن به جنگ با ایران و کاهش تنش‌ها در تنگه هرمز، نیازی به کمک چین ندارد.
+
+▪️ «فکر نمی‌کنم برای موضوع ایران به کمکی نیاز داشته باشیم»
+▪️ «به هر شکلی پیروز خواهیم شد؛ چه از راه صلح و چه غیر از آن»
+
+💢گزارش‌ها حاکی است موضوع جنگ ایران در دیدار ترامپ و شی جین‌پینگ طی دو روز آینده مطرح خواهد شد، اما ترامپ نقش پکن در پایان درگیری را کم‌اهمیت توصیف کرده است.
+
+در همین حال، رسانه‌ها گزارش می‌دهند در ایران نیز دیدار ترامپ و رئیس‌جمهور چین تهدیدی برای روابط تهران و پکن تلقی نمی‌شود.
+
+بر اساس این گزارش:
+
+▪️ مقام‌ها و تحلیلگران ایرانی روابط دو کشور را «راهبردی و مستقل» توصیف می‌کنند
+▪️ به توافق ۲۵ ساله ایران و چین که در سال ۲۰۲۰ امضا شد اشاره شده است
+▪️ این توافق حوزه‌های سیاسی، اقتصادی و فرهنگی را شامل می‌شود
+
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14082
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14082_1778725977.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دیوار نوشته‌ای در تهران؛
+
+💢ورود سگ‌ها و آمریکایی‌ها به تنگهٔ هرمز ممنوع...🚫
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20097
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مارکو روبیو:
+
+واشنگتن به پکن روشن کرد که هرگونه حمایت از ایران به روابط دوجانبه آسیب می رساند
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20096
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20096_1778725977.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 لحظه ی دیدار ترامپ و رئیس جمهور‌ چین
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 280973
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹دیوید کاماچو خودش شاید عنوان این مطلب را دوست نداشته باشد.
+
+اول به این دلیل که او خود را مصداق عنوان «کودک نابغه» نمی‌داند. هر چند ضریب هوشی (آی‌کیو) ۱۶۲ او بالاتر از ضریب هوشی ۱۳۰ است که سازمان بهداشت جهانی برای حداقل میزان توانایی‌های بیشتر و موهبت هوش برتر در افراد تعیین کرده است.
+
+او فروتنانه به بی‌بی‌سی موندو می‌گوید: «نابغه‌ها دیگر در میان ما نیستند و اگر نابغه هستند به دلیل آن است که کارهای بزرگی انجام داده‌اند».
+
+دومین دلیل هم این است که او دلش نمی‌خواهد با ذهن‌های درخشان فیزیکدانانی مانند استیون هاوکینگ و آلبرت اینشتین که ضریب هوشی ۱۶۰ داشته‌اند هم‌تراز شود.
+
+او با لبخندی بر لب اصرار دارد: «من ده سالم است و تازه شروع کرده‌ام. شاید وقتی هفتاد ساله شدم نابغه شدم اما فقط در صورتی که کارهای بزرگی در طول زندگی‌ام انجام دهم».
+
+ادامه مطلب⬇️
+
+📸Marcos González Díaz/ Courtesy/ POT
+https://bbc.in/3PdBOgl
+@BBCPersian
+</div>
+
+## BBCPersian — post 280972
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸مهدی تاج، رئیس فدراسیون فوتبال ایران، که روز چهارشنبه به همراه بازیکنان تیم ملی در میدان انقلاب تهران حضور داشت، به خبرنگاران گفت از تهیه سرودی برای تیم ملی ایران توسط معین،‌ خواننده برجسته ایرانی مقیم خارج از این کشور، مطلع است و از آن استقبال می‌کند.
+
+روز چهارشنبه بازیکنان تیم ملی فوتبال ایران در میان جمع بزرگی که در میدان انقلاب تهران حضور داشتند، با خواندن میثاق نامه خود و رد شدن از زیر قرآن - کتاب مقدس مسلمانان - رسما برای حضور در مسابقات جام جهانی ۲۰۲۶ بدرقه شدند.
+
+در این مراسم سرود رسمی تیم ملی ایران که پرواز همای، خواننده ایرانی، تهیه کرده بود با حضور خود او خوانده شد.
+
+پرواز همای گفته است برای تهیه این سرود از سه ماه پیش به سفارش فدراسیون فوتبال ایران مشغول به کار شده است اما امیدوار است که تولید سرود توسط معین هم به واقعیت تبدیل شود.
+
+تیم ملی به زودی راهی اردوی تدارکاتی در ترکیه خواهد شد و کمتر از یک ماه دیگر در کرانه غربی آمریکا به میدان خواهد رفت.
+🎥IRNA/ BORNA
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 03:24
 ---
 
