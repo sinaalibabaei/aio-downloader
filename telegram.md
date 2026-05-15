@@ -7,6 +7,357 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 03:42
+---
+
+## VahidOOnLine — post 240211
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هر کدام از این نام‌ها، روایت جوانی‌ست که می‌توانست زندگی کند، کار کند، عاشق شود و آینده‌ای بسازد؛ اما گلوله سرکوب مسیر زندگی‌شان را قطع کرد.
+جاویدنامان انقلاب ملی ایرانیان فقط نام‌های ثبت‌شده در یک فهرست نیستند؛ حافظه زخمی نسلی‌اند که بهای آزادی را با جان خود پرداخت.<
+عرفان علیزاده، علی‌اصغر محمدی چمستان، مبین فیلی، علیرضا موسی‌نیا، محمدامین قبادی، علی زنگنه، امیررضا حسنوند و محمدرضا سعیدی؛
+نام‌هایی که از خیابان‌های ایران پاک نشدند و در حافظه جمعی این سرزمین باقی خواهند ماند.<
+#جاویدنامان_انقلاب_ملی_ایرانیان
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240210
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240210_1778803975.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️صفحه فارسی وزارت خارجه آمریکا، پنجشنبه ۲۴ اردیبهشت با انتشار پیامی اعلام کرد ایران، افغانستان، روسیه و کره شمالی در سطح ۴ هشدار سفر آمریکا، یعنی «سفر نکنید»، قرار دارند.
+در این پیام آمده است این کشورها دارای شاخص خطر «بازداشت ناعادلانه شهروندان آمریکایی» هستند و شهروندان آمریکا باید پیش از رزرو سفر، هشدارهای مقصد خود را بررسی کنند.
+وزارت خارجه آمریکا همچنین نوشت: «حقوق شما همراه شما سفر نمی‌کنند» و تاکید کرد سفارتخانه‌ها و کنسولگری‌های آمریکا خدمات مربوط به حمایت و حفاظت از شهروندان آمریکایی در خارج از کشور را ارائه می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240209
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240209_1778803976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تام کاتن، سناتور جمهوریخواه در واکنش به موج گزارش‌هایی که اخیرا در رسانه‌های جریان اصلی آمریکا به نقل از منابع ناشناس منتشر می‌شود و در آن به دسترسی به اطلاعات جاسوسی و محرمانه اشاره می‌شود در پیامی در اکس نوشت: «چند گزارش اخیر رسانه‌ای به «اطلاعات» درباره ایران، چین و موضوعات دیگر استناد کرده‌اند. من از گیومه استفاده می‌کنم، چون این «اطلاعات» که برخلاف این خبرنگاران لیبرال، خودم آن‌ها را خوانده‌ام اغلب بر پایه چیزهایی مانند داده‌های اقتصادی در دسترس عموم، بیانیه‌های دیپلماتیک، اطلاعات وزارت کشاورزی، شبکه‌های اجتماعی و بله، گزارش‌های رسانه‌ای استوار است. به عبارت دیگر، این‌ها اطلاعات واقعی حاصل از فعالیت جاسوس‌ها یا اطلاعات محرمانه نیستند. بنابراین وقتی عناصر دولت عمیق به‌صورت گزینشی مطالبی را به رسانه‌های لیبرال درز می‌دهند که تمام پیش‌داوری‌های از سر ترس، نرمش‌طلبانه و ضدآمریکایی آن‌ها را تایید می‌کند، پیشنهاد می‌کنم با دیده تردید به آن نگاه کنید»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240208
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240208_1778803977.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تد باد، سناتور جمهوری‌خواه آمریکا، در حساب کاربری خود در ایکس نوشت جمهوری اسلامی بیش از ۴۷ سال به آمریکا و متحدانش حمله کرده و شهروندان آمریکایی را کشته است.
+تد باد افزود در حالی که روسای‌جمهوری پیشین این موضوع را به تعویق می‌انداختند، دونالد ترامپ، رییس‌جمهوری آمریکا، در حال انجام کاری است که آن‌ها حاضر به انجامش نبودند.
+او در عین حال تاکید کرد که آمریکا اکنون «در مسیری قرار گرفته که می‌تواند تهدید موشک‌های بالستیک و برنامه غنی‌سازی هسته‌ای جمهوری اسلامی را برای همیشه از بین ببرد.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341757
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341757_1778803978.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: President Trump and President Xi Jinping sat for an over two-hour meeting in Beijing for a discussion on key topics, including trade and Taiwan.
+
+Secretary of State Rubio says Washington's stance on Taiwan remains the same, @BillMelugin_ reports.
+</div>
+
+## pm_afshaa — post 90763
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90763_1778803979.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجلس آمریکا امروز طرحی رو با عنوان «توقف جنگ علیه ایران» رای گیری کرد که این طرح با 212 رای موافق و 212 رای مخالف تصویب نشد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90762
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90762_1778803979.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کان نیوز: مقامات ارشد ارتش اسرائیل و سنتکام هفته گذشته جلسه داشتن و منتظرن ببینن فردا ترامپ بعد اتمام سفرش چه تصمیمی میگیره.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90761
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90761_1778803980.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عزیزی، رئیس کمیسیون امنیت ملی و سیاست خارجی: پیش بینی کردیم هرکس که ترامپ رو به قتل برسونه، 50 میلیون یورو پاداش دریافت کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90760
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90760_1778803981.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: خطر وجودی بمب اتمی و موشک‌های بالستیک رو از خودمون دور کردیم. اگه این کار رو نمی‌کردیم، امروز جمهوری اسلامی یه بمب اتمی داشت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90759
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90759_1778803982.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: دشمنان ما به دنبال نابودی همه ما هستند؛ همه ما آنها بین راست و چپ، سکولار و مذهبی، یهودی و عرب تفاوتی قائل نمیشن.
+
+اورشلیم رو تحت حاکمیت اسرائیل برای همیشه حفظ خواهیم کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103526
+
+<div align="center">
+  <img src="telegram/content/mamlekate_103526_1778803983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❓ جنگ اخیر، ۲۸ فوریه شروع شد و تا آتش‌بس یعنی ۸ آپریل ادامه پیدا کرد. این لیست تمامی زلزله‌های بالای ۴.۵ ریشتر تو ایران توی سایت USGS از ابتدای سال ۲۰۲۶ میلادی هست. دقیقا از تاریخ ۲۸ فوریه تا ۸ آپریل زلزله‌ای با شدت ۴.۵ و بیشتر ثبت نشده، ولی تعداد زیادی قبل و بعدش وجود داره. این همزمانی اگر چه می‌تونه «تصادفی» باشه اما می‌تونه هم مربوط به «فعالیت‌های جمهوری اسلامی» توی این بازه باشه.
+
+@mamlekate
+</div>
+
+## IranIntlTV — post 337249
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337249_1778803984.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینترنت؛ رانت تازهٔ جمهوری اسلامی
+شرط دسترسی به اینترنت: انتشار تصاویر خامنه‌ای
+
+در حالی‌ که قطع و محدودیت اینترنت خسارت‌های سنگینی به زندگی و کسب‌وکار مردم وارد کرده، حکومت نه‌تنها محدودیت‌ها را کاهش نداده، بلکه با طرح‌هایی مانند «اینترنت پرو» و «سیم‌کارت سفید»، نگرانی‌ها دربارهٔ اینترنت طبقاتی را افزایش داده است.
+
+گزارش‌هایی منتشر شده که نشان می‌دهد برخی شهروندان، پس از انتقاد از حکومت یا فعالیت در شبکه‌های اجتماعی، با قطع سیم‌کارت و اینترنت مواجه شده‌اند و برای وصل دوباره، مجبور به ارائهٔ تعهد یا فعالیت حمایتی به نفع حکومت شده‌اند.
+
+جمهوری اسلامی اینترنت را به ابزاری برای کنترل سیاسی و سنجش وفاداری شهروندان تبدیل کرده است؛ وضعیتی که برای بسیاری از مردم فقط یک معنا دارد:
+هرجا اینترنت نیست، آزادی هم نیست.
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/9CC8wX4Bim0
+@iranintltv
+</div>
+
+## IranIntlTV — post 337240
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هر کدام از این نام‌ها، روایت جوانی‌ست که می‌توانست زندگی کند، کار کند، عاشق شود و آینده‌ای بسازد؛ اما گلوله سرکوب مسیر زندگی‌شان را قطع کرد.
+جاویدنامان انقلاب ملی ایرانیان فقط نام‌های ثبت‌شده در یک فهرست نیستند؛ حافظه زخمی نسلی‌اند که بهای آزادی را با جان خود پرداخت.
+عرفان علیزاده، علی‌اصغر محمدی چمستان، مبین فیلی، علیرضا موسی‌نیا، محمدامین قبادی، علی زنگنه، امیررضا حسنوند و محمدرضا سعیدی؛
+نام‌هایی که از خیابان‌های ایران پاک نشدند و در حافظه جمعی این سرزمین باقی خواهند ماند.
+#جاویدنامان_انقلاب_ملی_ایرانیان
+</div>
+
+## IranIntlTV — post 337239
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337239_1778803987.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مریم از پاریس: نگران حال فاطمه سپهری هستم و امیدوارم پوشش خبری بیشتری درباره ایشان داده شود
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/9CC8wX4Bim0
+@iranintltv
+</div>
+
+## IranIntlTV — post 337238
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337238_1778803989.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دریا از لندن: با زور و اعتراف اجباری، زندانی بی‌گناه را به اعدام محکوم می‌کنند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/9CC8wX4Bim0
+@iranintltv
+</div>
+
+## IranIntlTV — post 337237
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337237_1778803991.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عسل از اصفهان: جنگ اوضاع را تغییر نداد؛ حالا خودمان باید تغییرش بدهیم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/9CC8wX4Bim0
+@iranintltv
+</div>
+
+## IranIntlTV — post 337236
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337236_1778803994.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سهراب از تهران: «درود بر وی‌پی‌ان‌فروشِ حلال‌خور!»
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/9CC8wX4Bim0
+@iranintltv
+</div>
+
+## IranIntlTV — post 337235
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337235_1778803996.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیر از چالوس: حواستان به سلامت روانتان باشد؛ ایران با شهروندان افسرده آباد نمی‌شود
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/9CC8wX4Bim0
+@iranintltv
+</div>
+
+## Shin_Persian — post 6003
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 14 May 2026 23:41:52 UTC
+
+Jet activity over Mosul, #Iraq 🇮🇶
+
+فارسی
+
+فعالیت جنگنده‌ها برفراز موصل، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 217781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ماجرای تکذیب همکاری معین با تیم ملی فوتبال جمهوری اسلامی، تصویری کوچک از یک سازوکار بزرگ‌ است که در آن سپاه پاسداران گاه با استفاده از نام هنرمندان، پیش از وقوع هر اتفاقی، روایت مطلوب خود را می‌سازد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217780
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سفر نادر رئیس سیا به کوبا و انتقال پیام رئیس‌جمهوری آمریکا
+
+▪️جان رتکلیف رئیس سازمان اطلاعات مرکزی آمریکا، سیا، روز پنج‌شنبه در سفری «سطح بالا» به کوبا، با مقام‌های ارشد وزارت کشور این کشور دیدار و گفت‌وگو کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8150103.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14170
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14170_1778803998.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک نیروی حزب‌الله تا از محل اختفا خودش بیرون آمد توسط نیرو های تیپ گولانی هدف قرار گرفت و کشته شد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 281062
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281062_1778804000.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+وزارت خارجه ایتالیا اعلام کرد که پنج شهروند این کشور در یک حادثه غواصی در مالدیو جان باختند.
+
+این وزارتخانه با بیان اینکه این اتفاق در جزیره واوو آتول رخ داده است، اعلام کرد: «گمان می‌رود غواصان هنگام تلاش برای کاوش غارها در عمق ۵۰ متری جان خود را از دست داده‌اند.»
+
+ارتش مالدیو اعلام کرد که یک جسد در غاری در حدود ۶۰ متری زیر آب پیدا شده و گمان می‌رود چهار غواص دیگر نیز در آنجا باشند.
+
+به گفته ارتش مالدیو غواصانی با تجهیزات ویژه به منطقه اعزام شده‌اند و عملیات جستجو را بسیار پرخطر توصیف کرده است.
+
+اعتقاد بر این است که این حادثه بدترین حادثه غواصی در این کشور کوچک اقیانوس هند است که به دلیل رشته جزایر مرجانی خود، یک مقصد گردشگری محبوب است.
+
+خدمه کشتی که غواص‌ها با آن سفر می‌کردند، پس از آنکه نتوانستند با غواص‌ها تماس برقرار کنند و آنها به سطح آب بازنگشتند، مفقود شدن آنها را گزارش کردند.
+
+📷 Reinhard Dirscherl/ullstein bild via Getty Images
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 02:46
 ---
 
